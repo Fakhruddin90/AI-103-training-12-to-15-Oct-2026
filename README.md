@@ -1,0 +1,1 @@
+# AI-103-training-12-to-15-Oct-2026
